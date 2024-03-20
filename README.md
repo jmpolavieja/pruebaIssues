@@ -1,1 +1,1 @@
-Este es un ejempo para el tutorial en directo de pecjkechis en OW
+Este es un ejempo para el tutorial en directo de peckechis en OW
